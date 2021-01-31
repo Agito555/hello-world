@@ -1,2 +1,4 @@
 # hello-world
-just learn sth new
+just to learn sth new #for grammar correcty
+nothing serious
+to feel,to study, carpe diem
